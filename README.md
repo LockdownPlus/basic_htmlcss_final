@@ -9,7 +9,7 @@ https://youtu.be/eHG1lkr7O54
 
 HTML & CSS Webinar [Part 2] - Basic CSS (Tagalog)
 
-https://youtu.be/Hwbh33FN1_Q
+https://youtu.be/Q2fk1H0fZ5c
 
 HTML & CSS Webinar [Part 1] - Basic HTML (Tagalog)
 
